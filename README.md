@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Isaac
-<h1>Hi, I'm Isaac Doe! <br/><a href="(https://github.com/BlackID91/Black-D91)">Programmer</a>, <a href="https://https://www.linkedin.com/in/isaac-doe-a68266106/">Cybersecurity Analyst</a>, 
+I'm Isaac Doe! <br/><a href="(https://github.com/BlackID91/Black-D91)">Programmer</a>, <a href="https://https://www.linkedin.com/in/isaac-doe-a68266106/">Cybersecurity Analyst</a>, 
 
   
 Computer Science & Information Security Major | Data Analytics & Programming Enthusiast
