@@ -17,16 +17,4 @@
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 <h2>Certfications <h2></h2>
 
-https://www.coursera.org/account/accomplishments/verify/8KWXSA420QJX
-
-https://www.coursera.org/account/accomplishments/verify/UBHOYNZ946EK?utm_source=link&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
-
-https://www.coursera.org/account/accomplishments/verify/463SMHW5HBV0
-
-https://www.coursera.org/account/accomplishments/verify/463SMHW5HBV0
-
-https://www.coursera.org/account/accomplishments/verify/463SMHW5HBV0
-
-https://www.coursera.org/account/accomplishments/verify/463SMHW5HBV0
-
-https://www.coursera.org/account/accomplishments/verify/463SMHW5HBV0
+https://www.credly.com/badges/5ad6bf9f-c5dc-4d1f-a20a-646b06d9841f/linked_in?t=sovejm
